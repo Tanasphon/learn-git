@@ -1,4 +1,4 @@
 ---
-*Tanasphon Angthomg
-**Captan
+*Tanasphon Angthong*
+*Captan*
 ---
